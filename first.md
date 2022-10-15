@@ -1,9 +1,9 @@
-Sai Baba
+Sai Baba!
 
-Swami Samartha
+Swami Samartha!
 
-Gajanan Maharaj
+Gajanan Maharaj!
 
-Rani Sati Dadiji
+Rani Sati Dadiji!
 
 Shri Gurudev Datta
