@@ -1,6 +1,6 @@
 Sai Baba
 
-Swami Samartha
+Swami Samartha!
 
 Gajanan Maharaj
 
